@@ -63,4 +63,4 @@ Details are on the [pricing page](https://tedrosai.com/pricing).
 
 ## Contact
 
-Imran Alemar, Founder & Engineer · [tedros@tedrosai.com](mailto:tedros@tedrosai.com) · [tedrosai.com](https://tedrosai.com)
+Imran Alemar, Founder & Engineer · [LinkedIn](https://www.linkedin.com/in/imran-alemar) · [tedros@tedrosai.com](mailto:tedros@tedrosai.com) · [tedrosai.com](https://tedrosai.com)
